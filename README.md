@@ -1,0 +1,1 @@
+# TO know more about project checkout this link where i explain everything in details: https://www.linkedin.com/pulse/hr-analytics-power-bi-project-amir-sayab-pduhf/?trackingId=ZHZi4O%2FWBUBeJiT60hbXVw%3D%3D
